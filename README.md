@@ -6,3 +6,5 @@
 * the last of us
 * god of war 4
 * red dead redemption 2
+* spider man
+* horion zero dawn 
